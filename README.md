@@ -1,0 +1,2 @@
+# opera-browser
+Opera Browser is a secure web browser that is both fast and rich in features. It has a slick interface that embraces a modern, minimalist look, coupled with stacks of tools to make browsing more enjoyable. These include such tools as Speed Dial, which houses your favorites and Opera Turbo mode, which compresses pages to give you quicker navigation, (even when you have a bad connection).Opera is the best browser to search download or Install anything thing.
